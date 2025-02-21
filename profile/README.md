@@ -4,7 +4,7 @@
 
 The OPPO Find N5 redefines smartphone innovation. It offers advanced features and a sleek design. Moreover, the device excels in performance. Additionally, it delivers a captivating user experience. It stands out in a competitive market. Consumers eagerly explore its potential.
 [Read More](https://ztechinfo.in/pages/Technology/oppo-find-n5.html)
-## **Innovative Design and Build**
+## [Innovative Design and Build](https://ztechinfo.in/pages/Technology/oppo-find-n5.html)
 The smartphone has a modern design. Its frame feels robust and elegant. Furthermore, premium materials enhance its durability. Designers crafted the device with precision. The build quality impresses every user. Its compact form fits comfortably in the hand. Overall, the design creates a memorable impression.
 [Read More](https://ztechinfo.in/pages/Technology/oppo-find-n5.html)
 ## **Stunning Display Quality**
